@@ -1,3 +1,3 @@
 > [!NOTE]\
-> Keep Learning
+> Keep Learning 🎉
 
